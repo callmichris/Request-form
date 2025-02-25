@@ -48,7 +48,7 @@ The **ICT Request Form System** is designed to streamline the process of submitt
 ---
 
 ## **Support & Contact**  
-For technical support, contact the ICT Helpdesk at **support@organization.com** or call **+123-456-7890**.  
+For technical support, contact  **+233 54 493 9922**.  
 
 ---
 
